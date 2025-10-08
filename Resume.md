@@ -4,6 +4,7 @@
 📍 Boston, MA, USA  
 ✉️ [kaiac.walters@gmail.com](mailto:kaiac.walters@gmail.com)  
 🔗 [github.com/KaiaWalters](https://github.com/KaiaWalters)
+🖥️ [kaiawalters.com](https://kaiawalters.com/)
 
 ---
 
