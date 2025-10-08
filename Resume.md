@@ -3,7 +3,7 @@
 **Software Engineer**  
 📍 Boston, MA, USA  
 ✉️ [kaiac.walters@gmail.com](mailto:kaiac.walters@gmail.com)  
-🔗 [github.com/KaiaWalters](https://github.com/KaiaWalters)
+🔗 [github.com/KaiaWalters](https://github.com/KaiaWalters) </br>
 🖥️ [kaiawalters.com](https://kaiawalters.com/)
 
 ---
